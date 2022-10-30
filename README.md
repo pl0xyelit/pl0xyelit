@@ -2,7 +2,7 @@
 
 👋 Hello, I am pl0xy!
 
-📓 I am in 10th grade
+📓 I am in 11th grade
 
 🇷🇴 From Romania
 
