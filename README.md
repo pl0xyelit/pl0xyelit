@@ -2,7 +2,7 @@
 
 👋 Hello, I am pl0xy!
 
-📓 I am in 11th grade
+📓 I am in 12th grade/18 years old
 
 🇷🇴 From Romania
 
